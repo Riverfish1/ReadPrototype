@@ -1,1 +1,1 @@
-Prototype.jsิดย๋ืขสอัะถม
+Prototype.jsๆณจ้่งฃ่ฏป
